@@ -1,0 +1,1 @@
+# peores-consejos-para-estudiar
